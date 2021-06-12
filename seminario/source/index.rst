@@ -14,7 +14,7 @@ E.P.E.T.  N°2 "Ilda Valentino de Giachiero"
 Docente a cargo:
 ----------------
 
-Rojas, Yanina R. (Formación, Ética y Ciudadana)
+- Rojas, Yanina R. (Formación, Ética y Ciudadana)
 
 Integrantes:
 ----------------------------------------------------------
