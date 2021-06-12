@@ -1,0 +1,12 @@
+Fundamentación
+======================
+
+Los estudiantes, son personas en una etapa de desarrollo y de formación en medio de un contexto atípico, de los cuales se espera que se inserten en una sociedad y en un mundo de relaciones. Es por ello que necesita una adecuada competencia comunicativa para vincularse apropiadamente con los demás entes que lo rodean. Desde esta perspectiva, el tutor es un facilitador del aprendizaje, tanto emocional como específico del lenguaje. El proceso de enseñanza en este contexto, concibe como interacción social a distancia y como un hecho comunicativo-afectvo: en la comunicación verbal y no verbal, se unen para conseguir comprensión y transmisión eficaz de los mensajes y emociones.
+
+La función docente tiene entonces el objetivo principal de lograr la competencia comunicativa de sus alumnos, reforzar sus fortalezas y trabajar en sus debilidades para potenciar a cada estudiante, promoviendo la socialización en un contexto virtual, planificando acciones para construir en el educando una visión del mundo que le permita defender su puntos de vista. Así como también el desafío de enfrentar todo tipo y grado, y la transversalidad que la modalidad educativa impone al estar presente en los diferentes niveles educativos.
+
+Asimismo, la inclusión de tecnologías de la información y la comunicación (TIC) en educación nos proporciona nuevos recursos y estrategias que generan aprendizajes más relevantes y significativos.
+
+El lenguaje resulta esencial en la conformación de la identidad de los sujetos. Mediante él, se pueden planificar ideas, expresarlas, analizar su pensamiento y registrar su historia.
+
+A partir del área  se prioriza destinar a la lectura y a la escritura el tiempo necesario para desarrollar las competencias comunicativas y acercar a los alumnos a  diversas obras literarias, ya que apropiarse de la lengua y comprender los usos que la sociedad hace de los sistemas de comunicación es una necesidad social del individuo. Todo esto, se hará con el fin de lograr que los estudiantes sean capaces de construir un Curriculum vitae que les será de utilidad para aplicar a algún puesto de trabajo, una vez finalizado sus estudios de educación secundarios.
