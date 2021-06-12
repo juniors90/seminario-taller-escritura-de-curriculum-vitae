@@ -19,9 +19,9 @@ Rojas, Yanina R. (Formación, Ética y Ciudadana)
 Integrantes:
 ----------------------------------------------------------
 
-- (Psicología)
+- González, Dámaris (Psicología)
 
-- (EDI)
+- Sian, Camila (EDI)
 
 
 .. toctree::
